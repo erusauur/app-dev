@@ -7,4 +7,6 @@ My first repository
 
 **When Life Gives You Tangerines**
 
-### This K-Drama is one of my favorite right now, since I just watched it this year and the plot's so good. It gives a lot of lesson in love that will always touch anyones heart. It shows the journey of our life where we might loss someone but there will be someone
+### This K-Drama has quickly become one of my favorites this year. The plot is so good and catchy when I watched it in the TikTok, offering profound lessons about love that resonate deeply with the heart. It beautifully portrays life's journey, reminding us that while we may lose someone, there will always be others who love and support us, encouraging us to cherish every moment and memory. Additionally, it stars IU, my favorite artist and singer, which makes it even more special! :joy:
+
+
