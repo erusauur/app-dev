@@ -7,4 +7,4 @@ My first repository
 
 **When Life Gives You Tangerines**
 
-### This K-Drama is one of my favorite right now, since I just watched it this year and the plot's so good. It gives a lot of lesson in love that will always touch anyones heart.
+### This K-Drama is one of my favorite right now, since I just watched it this year and the plot's so good. It gives a lot of lesson in love that will always touch anyones heart. It shows the journey of our life where we might loss someone but there will be someone
